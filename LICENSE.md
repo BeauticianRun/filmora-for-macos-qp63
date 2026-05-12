@@ -1,4 +1,4 @@
-# 
+# Enhance Filmora for macOS with Filmora for macOS top Automation: EQ & slow-motion, the #1 automation. Includes EQ and slow-motion for a smoother and more creative editing workflow.
 
 
 
